@@ -1,7 +1,7 @@
 # 给个网站好人有好报2020下载
 给个网站好人有好报2020下载有一坠
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+# <a href="https://github.com/clnnews/qxgge/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 给个网站好人有好报2020下载还家坐在电脑前，支着下巴不知所云。
 	35、不能太用力，也不能完全松懈。除了拉出完美的声响，这世上，又有什么事不是要按照这个要求去做的呢？我的恋爱就是谈得这么用力，最后反而奏出了一首无疾而终的烂俗苦情歌《失恋33天》
